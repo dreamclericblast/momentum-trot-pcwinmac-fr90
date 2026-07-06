@@ -1,4 +1,4 @@
-# 
+# Último momentum trading bot preajustes for Mac OS | Profesional momentum trading bot preajustes for PC Windows. Featuring API de intercambio centralizado and comercio de futuros — optimized for maximum performance.
 
 
 
